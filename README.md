@@ -73,7 +73,7 @@ Thanks.
 
 ●🖥MAC
 
-# Modified by @palahsu
+# Modified by @Marfel Jawa
 
 For any kind of help, support, payment, suggetion and request ask me on Telegram:
 
